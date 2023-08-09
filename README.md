@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nendang Shallom Goshit aka @shallomflex
+- 👋 Hi, I’m Nendang Shallom Goshit
 - 👀 I’m interested in Interesting Projects.
 - 💞️ I’m looking to collaborating on Projects.
 - 📫 How to reach me by mail sshallom92@gmail.com
